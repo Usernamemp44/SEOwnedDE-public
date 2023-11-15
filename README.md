@@ -1,0 +1,3 @@
+# SEOwnedDE-public
+OMG SO REAL!
+this is kinda broken for me rn idk why...
